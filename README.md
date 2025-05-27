@@ -32,4 +32,4 @@ Microsoft + LinkedIn Career Essentials in Generative AI
 🔗 Let's Connect
 🔗 LinkedIn
 
-📧 Email: priya.poosaala@example.com
+📧 Email: priya.poosaala@gmail.com
